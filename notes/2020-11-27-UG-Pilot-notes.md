@@ -38,8 +38,19 @@ En verder ...
 - business owner is weer een stapje dichterbij ... maar is er nog niet echt
 
 **Gemeente Eindhoven**
+ 
+- Afgelopen weken gesprekken om business Eindhoven, PNB en Helmond aan te haken =>  positief
 
-- ...?
+- Eignaarschap secorhoofd Ruimtelijk Domein/Ruimtelijke Uitvoering, structureel 29 k€ budget voor running costs, 'frisse en slimme meid' voor business FAB + borging beheer"
+  Note: To Be Confirmed!
+  
+- Question & Answer sessie met SoftwareOne => 1e voorstel
+
+- Op 18-11 met Sophie van Velzen en FransJozef van Popppel. Er is geen 'smart' architect beschikbaar in Helmond nu. Vragen input 'functie profiel' om te gebruiken voor
+ vacature.
+ 
+- Op 16-11 gesprek met Cathy, Ramon Groote, Ruud van Lee en Gerben Hoogeboom. Follow-up/commitmnent toen niet helder.  Op 26-11  nadere kennismaking met Gerben, nieuwe
+  Enterprise Architect. Ruud kan nu geen prio/tijd scheken aan pilot, we gebruiken Gernen vooralsnog als primair contact. Wordt vervolgd.
 
 **Gemeente Den Bosch**
 
